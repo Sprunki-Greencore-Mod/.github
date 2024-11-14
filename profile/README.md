@@ -1,4 +1,4 @@
-# Sprunki But Everyone Sings
+# Sprunki Greencore
 ## Create Epic Music with Every Character at Once!
 
 ## Play [Sprunki Greencore](https://sprunkiincredibox.app/sprunki-but-everyone-sings) Now!
